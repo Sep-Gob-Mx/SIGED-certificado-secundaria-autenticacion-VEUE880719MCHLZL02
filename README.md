@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-VEUE880719MCHLZL02
+VEUE880719MCHLZL02
